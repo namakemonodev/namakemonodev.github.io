@@ -1,1 +1,0 @@
-# namakemonodev.github.io
